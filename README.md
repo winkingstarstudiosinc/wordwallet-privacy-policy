@@ -1,1 +1,1 @@
-# wordwallet-privacy-policy
+# Privacy Plicy
